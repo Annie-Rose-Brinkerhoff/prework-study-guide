@@ -1,2 +1,2 @@
-# prework-study-guide-
+# prework-study-guide
 U of U per-work study guide. 
